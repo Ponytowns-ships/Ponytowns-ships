@@ -1,7 +1,6 @@
 
 
 
-
 <p align="Center">$${\color{#ffffff}Evening!\ welcome\ to\ ponytowners-ships.}$$</p>
 
 <p align="Center">$${\color{#ffffff}want\ to\ nominate\ you're\ partners/friends\ as\ you're\ favorite\ fandoms\ duo/couple?}$$</p>
@@ -17,6 +16,10 @@
 
 **Nominations  !** last updated 9/4/2026
 -----------------
+our best of duos <33
+----------
+nothing here... be the first!
 
-
+our romantic couples ^^ 
+-----------------------
 <a href="https://github.com/neverwanted2dance">@neverwanted2dance</a> and <a href="https://github.com/glisteningmirrors">glisteningmirrors</a> are the "Dandy's world" fashionshow.  
