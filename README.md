@@ -15,5 +15,8 @@
 <p align="Center">$${\color{#ffffff}and\ please,\ do\ NOT\ nominate\ people\ who\ do\ NOT\ have\ a\ github.}$$</p>
 
 
-**Nominations !**
+**Nominations  !** last updated 9/4/2026
 -----------------
+
+
+<a href="https://github.com/neverwanted2dance">@neverwanted2dance</a> and <a href="https://github.com/glisteningmirrors">glisteningmirrors</a> are the "Dandy's worlds" fashionshow.  
