@@ -18,14 +18,15 @@
 
 **Nominations  !** last updated 9/4/2026
 -----------------
-our best of duos <33
+(AKA siblings /friend's) our best of duos <33
 ----------
-<a href="https://github.com/Sproutkin ">@Sproutkin </a> and <a href="https://github.com/priijan">@priijan</a> are the Baking buddies / fruitcake-buds of **( dandys world )**
+<a href="https://github.com/VALTHEUNICORN ">@VALTHEUNICORN </a> and <a href="https://github.com/TwistedPastry">@TwistedPastry</a> are the  PastryCousins of **( dandys world )**
 
 <a href="https://github.com/kingsbreak ">@kingsbreak </a> and <a href="https://github.com/coalcarolynne">@coalcarolynne</a> no characters given..(?)
 
+<a href="https://github.com/Sproutkin ">@Sproutkin </a> and <a href="https://github.com/priijan">@priijan</a> are the Baking buddies / fruitcake-buds of **( dandys world )**
 
-our romantic couples ^^ 
+(AKA ships) our romantic couples ^^ 
 -----------------------
 <a href="https://github.com/MrNovalite">@MrNovalite</a> and <a href="https://github.com/GraveyardOfStars">@GraveyardOfStars</a> are the Guns n ' Roses of **( deltarune , chapter 5 )** 
 
