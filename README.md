@@ -18,10 +18,13 @@
 -----------------
 our best of duos <33
 ----------
-nothing here... be the first!
+<a href="https://github.com/Sproutkin ">@Sproutkin </a> and <a href="https://github.com/ priijan">@priijan</a> are the Baking buddies /fruitcake-buds **( dandys world )**
+
+<a href="https://github.com/kingsbreak ">@kingsbreak </a> and <a href="https://github.com/coalcarolynne">@coalcarolynne</a> no characters given..(?)
+
 
 our romantic couples ^^ 
 -----------------------
 <a href="https://github.com/MrNovalite">@MrNovalite</a> and <a href="https://github.com/GraveyardOfStars">@GraveyardOfStars</a> are the Guns n ' Roses of **( deltarune , chapter 5 )** 
 
-<a href="https://github.com/neverwanted2dance">@neverwanted2dance</a> and <a href="https://github.com/glisteningmirrors">@glisteningmirrors</a> are the fashionshow of **(dandys world)**
+<a href="https://github.com/neverwanted2dance">@neverwanted2dance</a> and <a href="https://github.com/glisteningmirrors">@glisteningmirrors</a> are the fashionshow of **( dandys world )**
