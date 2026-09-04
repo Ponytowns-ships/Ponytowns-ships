@@ -7,7 +7,9 @@
 
 <p align="Center">$${\color{#ffffff}Good!\ cause\ you\ came\ To\ the\ Right\ place!}$$</p>
 
-<p align="Center">$${\color{#ffffff}Sign\ my\ ATA\ To\ nominate\ romatical/Platonic\ ships!}$$</p>
+<p align="Center">$${\color{#ffffff}Sign\ my\ ATA\ To\ nominate\ romantical/Platonic\ ships!}$$</p>
+
+<p align="Center">$${\color{#ffffff}Don't\ worry,\ doubles\ are\ always\ welcomed.}$$</p>
 
 <p align="Center">$${\color{#ffffff}vvv}$$</p>
 
