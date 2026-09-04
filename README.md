@@ -18,7 +18,7 @@
 -----------------
 our best of duos <33
 ----------
-<a href="https://github.com/Sproutkin ">@Sproutkin </a> and <a href="https://github.com/ priijan">@priijan</a> are the Baking buddies /fruitcake-buds **( dandys world )**
+<a href="https://github.com/Sproutkin ">@Sproutkin </a> and <a href="https://github.com/ priijan">@priijan</a> are the Baking buddies / fruitcake-buds of **( dandys world )**
 
 <a href="https://github.com/kingsbreak ">@kingsbreak </a> and <a href="https://github.com/coalcarolynne">@coalcarolynne</a> no characters given..(?)
 
