@@ -19,7 +19,9 @@
 **Nominations  !** last updated 9/4/2026
 -----------------
 (AKA siblings /friend's) our best of duos <33
-----------
+---------- 
+<a href="https://github.com/2quet ">@2quet </a> and <a href="https://github.comtime/2bfreaky">@time2bfreaky</a> are the c00lbluu of **(Roblox / bluuworld)**
+
 <a href="https://github.com/VALTHEUNICORN ">@VALTHEUNICORN </a> and <a href="https://github.com/TwistedPastry">@TwistedPastry</a> are the  PastryCousins of **( dandys world )**
 
 <a href="https://github.com/kingsbreak ">@kingsbreak </a> and <a href="https://github.com/coalcarolynne">@coalcarolynne</a> no characters given..(?)
