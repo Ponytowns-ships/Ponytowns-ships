@@ -19,4 +19,4 @@
 -----------------
 
 
-<a href="https://github.com/neverwanted2dance">@neverwanted2dance</a> and <a href="https://github.com/glisteningmirrors">glisteningmirrors</a> are the "Dandy's world" fashionshow.  
+<a href="https://github.com/neverwanted2dance">@neverwanted2dance</a> and <a href="https://github.com/glisteningmirrors">glisteningmirrors</a> are the "Dandy's world" fashionshow.(Vee x glesten)  
