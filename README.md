@@ -12,8 +12,7 @@
 
 <p align="Center">$${\color{#ffffff}vvv}$$</p>
 
-[Click me!](https://fallinginlove.atabook.org/)
-
+<p align="Center">$${\color{#ffffff}and\ please,\ do\ NOT\ nominate\ people\ who\ do\ NOT\ want\ to\ be\ nominated.}$$</p>
 
 
 **Nominations !**
