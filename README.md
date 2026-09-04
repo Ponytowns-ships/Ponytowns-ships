@@ -12,7 +12,7 @@
 
 <p align="Center">$${\color{#ffffff}vvv}$$</p>
 
-<p align="Center">$${\color{#ffffff}and\ please,\ do\ NOT\ nominate\ people\ who\ do\ NOT\ want\ to\ be\ nominated.}$$</p>
+<p align="Center">$${\color{#ffffff}and\ please,\ do\ NOT\ nominate\ people\ who\ do\ NOT\ have\ a\ github.}$$</p>
 
 
 **Nominations !**
