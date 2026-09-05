@@ -18,11 +18,13 @@
 
 **Nominations  !** last updated 9/4/2026
 -----------------
-(AKA siblings /friend's) our best of duos <33
+(AKA platonic) our best of duos <33
 ---------- 
 
-<a href="https://github.com/2quet ">@2quet </a> and <a href="https://github.com/time2bfreaky">@time2bfreaky</a> are the c00lbluu of **(Roblox / bluuworld)**
+<a href="https://github.com/2quet ">@2quet </a> and <a href="https://github.com/ComfortingMewsUnderSoftStars ">@ComfortingMewsUnderSoftStars</a> are the c00lbluu of **(Roblox / bluuworld)**
 
+
+<a href="https://github.com/z0mbiepup ">@z0mbiepup </a> and <a href="https://github.com/TwistedPastry">@TwistedPastry</a> are the  Partcraft of **( dandys world )**
 
 <a href="https://github.com/VALTHEUNICORN ">@VALTHEUNICORN </a> and <a href="https://github.com/TwistedPastry">@TwistedPastry</a> are the  PastryCousins of **( dandys world )**
 
