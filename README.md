@@ -34,7 +34,7 @@
 
 (AKA ships) our romantic couples ^^ 
 -----------------------
-<a href="https://github.com/ONEMXRECHANCE ">@ONEMXRECHANCE </a> and <a href="https://github.com/and BloodDove">@BloodDove</a> are the Doublefedora of **( Forsaken )**
+<a href="https://github.com/ONEMXRECHANCE ">@ONEMXRECHANCE </a> and <a href="https://github.com/BloodDove> "> @BloodDove </a> are the Doublefedora of **( Forsaken )**
 
 <a href="https://github.com/MrNovalite">@MrNovalite</a> and <a href="https://github.com/GraveyardOfStars">@GraveyardOfStars</a> are the Guns n ' Roses of **( Deltarune , chapter 5 )** 
 
