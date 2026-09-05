@@ -21,8 +21,9 @@
 (AKA platonic) our best of duos <33
 ---------- 
 
-<a href="https://github.com/2quet ">@2quet </a> and <a href="https://github.com/time2bfreaky ">@time2bfreaky</a> are the c00lbluu of **(Roblox / bluuworld)**
+<a href="https://github.com/adriipupss ">@adriipupss </a> and <a href="https://github.com/CosmoThePastryy ">@CosmoThePastryy</a> are the  FossilCake of **(Dandys world)**
 
+<a href="https://github.com/2quet ">@2quet </a> and <a href="https://github.com/time2bfreaky ">@time2bfreaky</a> are the c00lbluu of **(Roblox / bluuworld)**
 
 <a href="https://github.com/z0mbiepup ">@z0mbiepup </a> and <a href="https://github.com/ComfortingMewsUnderSoftStars">@ComfortingMewsUnderSoftStars</a> are the  Partcraft of **( Dandys world )**
 
