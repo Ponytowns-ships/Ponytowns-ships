@@ -20,7 +20,9 @@
 -----------------
 (AKA siblings /friend's) our best of duos <33
 ---------- 
-<a href="https://github.com/2quet ">@2quet </a> and <a href="https://github.comtime/2bfreaky">@time2bfreaky</a> are the c00lbluu of **(Roblox / bluuworld)**
+
+<a href="https://github.com/2quet ">@2quet </a> and <a href="https://github.com/time2bfreaky">@time2bfreaky</a> are the c00lbluu of **(Roblox / bluuworld)**
+
 
 <a href="https://github.com/VALTHEUNICORN ">@VALTHEUNICORN </a> and <a href="https://github.com/TwistedPastry">@TwistedPastry</a> are the  PastryCousins of **( dandys world )**
 
