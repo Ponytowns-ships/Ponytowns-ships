@@ -36,6 +36,8 @@
 
 <a href="https://github.com/Sproutkin ">@Sproutkin </a> and <a href="https://github.com/priijan">@priijan</a> are the Baking buddies / fruitcake-buds of **(  Dandys world )**
 
+<a href="https://github.com/uv-light ">@uv-light </a> and <a href="https://github.com/priijan">@priijan</a> are the crosship Sprout and lute Of **(Hazbin hotel + Dandy's world)**
+
 <a href="https://github.com/VALTHEUNICORN ">@VALTHEUNICORN </a> and <a href="https://github.com/TwistedPastry">@TwistedPastry</a> are the  PastryCousins of **( Dandys world )**
 
 <a href="https://github.com/z0mbiepup ">@z0mbiepup </a> and <a href="https://github.com/ComfortingMewsUnderSoftStars">@ComfortingMewsUnderSoftStars</a> are the  Partcraft of **( Dandys world )**
