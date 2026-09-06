@@ -21,6 +21,7 @@
 (AKA platonic) our best of duos <33
 ---------- 
 
+
 <a href="https://github.com/2quet ">@2quet </a> and <a href="https://github.com/time2bfreaky ">@time2bfreaky</a> are the c00lbluu of **(Roblox / bluuworld)**
 
 <a href="https://github.com/adriipupss ">@adriipupss </a> and <a href="https://github.com/CosmoThePastryy ">@CosmoThePastryy</a> are the  FossilCake of **(Dandys world)**
@@ -31,6 +32,8 @@
 
 <a href="https://github.com/kingsbreak ">@kingsbreak </a> and <a href="https://github.com/coalcarolynne">@coalcarolynne</a> no characters given..(?)
 
+<a href="https://github.com/Snuckiee ">@Snuckiee </a> and <a href="https://github.com/starsoflumion ">@starsoflumion</a> are the HowlingChristmas of **(Dandsy world)**
+
 <a href="https://github.com/Sproutkin ">@Sproutkin </a> and <a href="https://github.com/priijan">@priijan</a> are the Baking buddies / fruitcake-buds of **(  Dandys world )**
 
 <a href="https://github.com/VALTHEUNICORN ">@VALTHEUNICORN </a> and <a href="https://github.com/TwistedPastry">@TwistedPastry</a> are the  PastryCousins of **( Dandys world )**
@@ -39,6 +42,8 @@
 
 (AKA ships) our romantic couples ^^ 
 -----------------------
+<a href="https://github.com/DETERMlNATION">@DETERMlNATION</a> and <a href="https://github.com/FlRSTFALLEN">@FlRSTFALLEN</a> are the  charisk of **( Undertale )** 
+
 <a href="https://github.com/MrNovalite">@MrNovalite</a> and <a href="https://github.com/GraveyardOfStars">@GraveyardOfStars</a> are the Guns n ' Roses of **( Deltarune , chapter 5 )** 
 
 <a href="https://github.com/neverwanted2dance">@neverwanted2dance</a> and <a href="https://github.com/glisteningmirrors">@glisteningmirrors</a> are the fashionshow of **( Dandys world )**
