@@ -16,13 +16,14 @@
 <p align="Center">$${\color{#ffffff}and\ please,\ do\ NOT\ nominate\ people\ who\ do\ NOT\ have\ a\ github.}$$</p>
 
 
-**Nominations  !** last updated 9/6/2026
+**Nominations  !** last updated 9/7/2026
 -----------------
 (AKA platonic) our best of duos <33
----------- 
-
+----------
 
 <a href="https://github.com/2quet ">@2quet </a> and <a href="https://github.com/time2bfreaky ">@time2bfreaky</a> are the c00lbluu of **(Roblox / bluuworld)**
+
+<a href="https://github.com/6odheaded ">@6odheaded </a> and <a href="https://github.com/ watcherbittes ">@ watcherbittes</a> are Dave and john of **(watcherbites)**
 
 <a href="https://github.com/adriipupss ">@adriipupss </a> and <a href="https://github.com/CosmoThePastryy ">@CosmoThePastryy</a> are the  FossilCake of **(Dandys world)**
 
@@ -46,7 +47,9 @@
 
 (AKA ships) our romantic couples ^^ 
 -----------------------
-<a href="https://github.com/DETERMlNATION">@DETERMlNATION</a> and <a href="https://github.com/FlRSTFALLEN">@FlRSTFALLEN</a> are the  charisk of **( Undertale )** 
+<a href="https://github.com/DETERMlNATION">@DETERMlNATION</a> and <a href="https://github.com/FlRSTFALLEN">@FlRSTFALLEN</a> are the charisk of **( Undertale )** 
+
+<a href="https://github.com/lightthattries">@lightthattries</a> and <a href="https://github.com/Cannibalsobsession">@Cannibalsobsession</a> are the glitteringlemonade of **( CRK / cookie run kingdom )** 
 
 <a href="https://github.com/MrNovalite">@MrNovalite</a> and <a href="https://github.com/GraveyardOfStars">@GraveyardOfStars</a> are the Guns n ' Roses of **( Deltarune , chapter 5 )** 
 
