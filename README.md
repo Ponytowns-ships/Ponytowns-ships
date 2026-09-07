@@ -9,7 +9,7 @@
 
 <p align="Center">$${\color{#ffffff}Sign\ my\ ATA\ To\ nominate\ romantical/Platonic\ ships!}$$</p>
 
-<p align="Center">$${\color{#ffffff}Don't\ worry,\ doubles\ are\ ok\ but \not \recommended.}$$</p>
+<p align="Center">$${\color{#ffffff}Don't\ worry,\ doubles\ are\ ok\ but\ not\ recommended.}$$</p>
 
 <p align="Center">$${\color{#ffffff}vvv}$$</p>
 
