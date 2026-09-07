@@ -16,7 +16,7 @@
 <p align="Center">$${\color{#ffffff}and\ please,\ do\ NOT\ nominate\ people\ who\ do\ NOT\ have\ a\ github.}$$</p>
 
 
-**Nominations  !** last updated 9/4/2026
+**Nominations  !** last updated 9/6/2026
 -----------------
 (AKA platonic) our best of duos <33
 ---------- 
@@ -25,6 +25,8 @@
 <a href="https://github.com/2quet ">@2quet </a> and <a href="https://github.com/time2bfreaky ">@time2bfreaky</a> are the c00lbluu of **(Roblox / bluuworld)**
 
 <a href="https://github.com/adriipupss ">@adriipupss </a> and <a href="https://github.com/CosmoThePastryy ">@CosmoThePastryy</a> are the  FossilCake of **(Dandys world)**
+
+<a href="https://github.com/itsthewayimwired ">@@itsthewayimwired </a> and <a href="https://github.com/dirkskatana ">@dirkskatana</a> are the dirk and john Duo of **(Homestuck)**
 
 
 <a href="https://github.com/kiwiconiccc ">@kiwiconiccc </a> and <a href="https://github.com/SweetTenshi ">@SweetTenshi</a> are the Saiki and Aiura Duo of **(Saiki k)**
