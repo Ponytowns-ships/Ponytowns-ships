@@ -33,8 +33,6 @@
 <a href="https://github.com/kiwiconiccc ">@kiwiconiccc </a> and <a href="https://github.com/SweetTenshi ">@SweetTenshi</a> are the Saiki and Aiura Duo of **(Saiki k)**
 
 
-<a href="https://github.com/kingsbreak ">@kingsbreak </a> and <a href="https://github.com/coalcarolynne">@coalcarolynne</a> no characters given..(?)
-
 <a href="https://github.com/Snuckiee ">@Snuckiee </a> and <a href="https://github.com/starsoflumion ">@starsoflumion</a> are the HowlingChristmas of **(Dandsy world)**
 
 <a href="https://github.com/Sproutkin ">@Sproutkin </a> and <a href="https://github.com/priijan">@priijan</a> are the Baking buddies / fruitcake-buds of **(  Dandys world )**
