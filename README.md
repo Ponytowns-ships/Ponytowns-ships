@@ -23,7 +23,7 @@
 
 <a href="https://github.com/2quet ">@2quet </a> and <a href="https://github.com/time2bfreaky ">@time2bfreaky</a> are the c00lbluu of **(Roblox / bluuworld)**
 
-<a href="https://github.com/6odheaded ">@6odheaded </a> and <a href="https://github.com/ watcherbittes ">@ watcherbittes</a> are Dave and john of **(watcherbites)**
+<a href="https://github.com/6odheaded ">@6odheaded </a> and <a href="https://github.com/watcherbittes ">@ watcherbittes</a> are Dave and john of **(watcherbites)**
 
 <a href="https://github.com/adriipupss ">@adriipupss </a> and <a href="https://github.com/CosmoThePastryy ">@CosmoThePastryy</a> are the  FossilCake of **(Dandys world)**
 
