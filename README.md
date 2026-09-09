@@ -53,6 +53,6 @@
 
 <a href="https://github.com/neverwanted2dance">@neverwanted2dance</a> and <a href="https://github.com/glisteningmirrors">@glisteningmirrors</a> are the fashionshow of **( Dandys world )**
 
-<a href="https://github.com/casino-flush ">@casino-flush </a> and <a href="https://github.com/BloodDove ">@BloodDove </a> are the Doublefedora of **( Forsaken )**
+<a href="https://github.com/casino-flush ">@casino-flush </a> and <a href="https://github.com/prizeflush ">@prizeflush </a> are the Doublefedora of **( Forsaken )**
 
 
