@@ -27,6 +27,7 @@
 
 <a href="https://github.com/adriipupss ">@adriipupss </a> and <a href="https://github.com/CosmoThePastryy ">@CosmoThePastryy</a> are the  FossilCake of **(Dandys world)**
 
+
 <a href="https://github.com/itsthewayimwired ">@@itsthewayimwired </a> and <a href="https://github.com/dirkskatana ">@dirkskatana</a> are the dirk and john Duo of **(Homestuck)**
 
 
@@ -40,6 +41,8 @@
 <a href="https://github.com/uv-light ">@uv-light </a> and <a href="https://github.com/priijan">@priijan</a> are the crosship Sprout and lute Of **(Hazbin hotel + Dandy's world)**
 
 <a href="https://github.com/VALTHEUNICORN ">@VALTHEUNICORN </a> and <a href="https://github.com/TwistedPastry">@TwistedPastry</a> are the  PastryCousins of **( Dandys world )**
+
+<a href="https://github.com/yellowdeltaune ">@yellowdeltaune </a> and <a href="https://github.com/thewardenmcsm ">@thewardenmcsm </a> are Yellow and blue of **(Deltarune)**
 
 <a href="https://github.com/z0mbiepup ">@z0mbiepup </a> and <a href="https://github.com/ComfortingMewsUnderSoftStars">@ComfortingMewsUnderSoftStars</a> are the  Partcraft of **( Dandys world )**
 
